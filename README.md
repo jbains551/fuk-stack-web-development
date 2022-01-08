@@ -1,1 +1,0 @@
-# fuk-stack-web-development
